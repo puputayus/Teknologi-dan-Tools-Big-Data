@@ -1,1 +1,0 @@
-# Teknologi-dan-Tools-Big-Data
